@@ -1,17 +1,22 @@
- En mis años como docente he visto a estudiantes de primer ciclo ilustrar personajes dignos del conceptart de una película de Pixar -spoiler alert- no es algo que hayan aprendieron en mi clase. 
+ En mis años como docente he visto a estudiantes de primer ciclo ilustrar personajes dignos del conceptart de una película de Pixar. Pero aunque sea muy gratificante -spoiler alert- no es algo que hayan aprendieron en mi clase. 
 
-Para que una estudiante de diseño pueda producir ilustraciones bellas debe aprender varias técnicas y estrategias como expresión gráfica, proporciones, linearts, anatomía, perspectiva, composición, semiótica, cultura visual, luces, sombras, tradiciones iconográficas, storytelling, cromática y un largo etcetera. No pueden haber aprendido todo eso en un solo ciclo universitario ¿cómo lo logran?. La respuesta es muy obvia pero vale la pena explorarla. En converzaciones, algunos jóvenes mensionaron haber empezado a dibujar a los 8 ańos, otros a los 12. Pero a breves razgos, al momento de ingresar en la carrera, algunos jóvenes ilustradores ya tenían varios años de experiencia. Mensiono esto porque a veces se subestima el esfuero y la complejidad detráz de una ilustración. 
+Para que una estudiante de diseño pueda producir ilustraciones bellas debe aprender varias técnicas y estrategias como expresión gráfica, proporciones, linearts, anatomía, perspectiva, composición, semiótica, cultura visual, luces, sombras, tradiciones iconográficas, storytelling, cromática y un largo etcetera. No pueden haber aprendido todo eso en un solo ciclo universitario ¿cómo lo logran?. La respuesta es muy obvia pero vale la pena explorarla. En converzaciones, algunos jóvenes mensionaron haber empezado a dibujar a los 8 ańos, otros a los 12. Pero a breves razgos, al momento de ingresar en la carrera, algunos jóvenes ilustradores ya tenían varios años de experiencia.
 
-Naturalemente no son todos los casos, hay quienes a penas empezaron a dibujal y sin embargo comprenden perfectamente el esfuerzo que implica hacerlo "bien", en comparación, o que por lomenos les guste sus propios dibujos. Muchos tienen miedo de no lograrlo, o pereza de tomarse la molestia. Como profesor es mi trabajo incentivarles, ayudarles a encontrar esa motivación que les haga esforzarse y atravezar ese camino difícil.
+Mensiono esto para dejar en claro que es difil dibujar y a veces se subestima el esfuero y la complejidad detráz del quehacer de un ilustrador. 
 
-Para esto recurro mucho a las razones por las que a mí me apasiona ilustrar. Les enseño ejemplos, artistas que admiro, vemos películas, hablamos de proyectos fantásticos. Pero a veces no es suficiente. Las experiencias son intrasferibles y a veces no logro conectar. Como si tuviera un enemigo silecioso que se me adelantó y les plantó a algunos una idea tóxica en la cabeza, como un virus ideológico que se aprovecha de la incertidumbre, del miedo, a no tener éxito, a parder el tiempo, a no tener trabajo, al fracazo.
+Naturalemente no todos los estudiantes llegan entrenados para ilustrar, hay quienes a penas empezaron a dibujal, pero comprenden perfectamente el esfuerzo que implica hacerlo "bien", en comparación, o que por lomenos les guste sus propios dibujos. Muchos tienen miedo de no lograrlo, o pereza de tomarse la molestia. Entonces entro yo, para salvar el día. Me he puesto la tarea de incentivarles, ayudarles a encontrar la motivación correcta, que les haga esforzarse y atravezar ese camino difícil. Mi objetivo oculto es que les pasaione lo que hacen ¡BUAJAJAJAJA! [Sonidos de Truenos]
 
+Para esto recurro mucho a las razones por las que a mí me apasiona ilustrar. Les muestro cómo he resuelto proyetos, les enseño ejemplos, artistas que admiro, vemos películas, hablamos de proyectos fantásticos. Pero a veces no es suficiente. No es solo que las experiencias son intrasferibles y a veces no logro conectar, porque les caí mal, sino que a veces, solo a veces siento una presencia obscura en el salón de clases. Como si tuviera un enemigo silecioso e invisible que se me ha adelantado y lleva un tiempo hablandoles a mis muchaches al oido, sembrandoles una idea tóxica en la cabeza, como un virus ideológico. Un virus que se alimenta de la incertidumbre, del miedo a lo desconocido, del miedo a parder el tiempo, el miedo a no tener trabajo, ¡el miedo a al fracazo!
 
-- Profe, ¿para qué me voy a esforzar tanto aprendiendo tantas cosas si con la IA puedo hacer ilustraciones más rápido y sin esfuerzo?
+- Profe, ¿para qué me voy a esforzar tanto aprendiendo tantas cosas si con la IA puedo hacer ilustraciones garísimas más rápido y sin esfuerzo?
 
-¿Qué le digo?, ¿le pongo cero?, o peor aún ¿invento mecanismos de control para que no haga el trabajo con IA?, ¿y si no me doy cuenta?, ¿le amenazo con ponerle cero?,
+...
 
-Esta pregunta desgarradora y desconcertante no viene de la nada. La inquietud es legítima. ¿Para que tomarse las molestias si se puede resolver así de fácil?. Porque en últimas lo que importa es que esa imagen sea linda, transmita un concepto y -redoble de tambores- se venda. 
+... Silencio en la sala.
+
+¿Qué hago?, ¿Qué le digo?, ¿le pongo cero?, ¿hago una limpia? o peor aún ¿invento mecanismos de control para que no haga el trabajo con IA?, ¿y si no me doy cuenta?, ¿le amenazo?. ¡Siguiente movimiento René!
+
+Esta pregunta desgarradora y desconcertante no viene de la nada. La inquietud es legítima. ¿Para que tomarse las molestias si se puede resolver así de fácil?. Al fin y al cabo el cliente ni se da cuenta, y probablemente el publico que la vea tampoco.  Lo que importa es que esa imagen sea linda y -redoble de tambores- se  v e n d  a. 
 
 
 
