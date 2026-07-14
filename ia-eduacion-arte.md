@@ -38,11 +38,11 @@ Cuentan los antiguos que en el campo de las artes, todos los recursos estéticos
 
 —¿Persuadir de qué?— dirá el lector intrépido.
 
-La retórica es un cúmulo de estrategias, mayormente estéticas, cuidadosamente perfeccionadas para conmovernos el alma, desarmarnos, romper cualquier conjuro de protección y convencernos de lo que sea. Sin darnos tantas vueltas, nunca ha faltado alguien que use los recursos retóricos del arte para persuadir. Desde los cuadros del renacimiento, hasta los flamantes discursos de dictadores.
+La retórica es un cúmulo de estrategias, mayormente estéticas, cuidadosamente perfeccionadas para conmovernos el alma, desarmarnos, romper cualquier conjuro de protección y convencernos de lo que sea. Sin darnos tantas vueltas, nunca ha faltado alguien que use los recursos retóricos del arte para persuadir. Desde los cuadros del renacimiento, hasta los discursos de flamantes dictadores.
 
-Así nació ese *Nazgûl*. Durante el último siglo, el mundo del marketing y la publicidad se ha valido de las artes y el diseño para persuadir (todas las artes y todos los diseños). Esto incluye persuasión de compra.
+Así nació ese *Nazgûl*. Durante el último siglo, el mundo del marketing y la publicidad se ha valido de las artes y el diseño para persuadir a las personas para que compren.
 
-AJÁ! te tengo!. 
+AJÁ! te tengo!
 
 Nos venden gaseosas con música, aerolíneas con danza, telefonía con esculturas, chocolates con tipografía, zapatos con performance, ideologías con literatura, cremas con cromática. En este ecosistema de "compro y luego existo" parece tener sentido absoluto lo que pregunta mi estudiante. Si el objetivo de la ilustración es vender ¿para qué bla bla bla...? —mugre Shinigami patojo.
 
@@ -64,11 +64,11 @@ Por otro lado, y con esto termino, genuninamente creo que los sistemas de progra
 
 Hay que doblegar la voluntad de la bestia sombría y usar su poder a nuestro favor. Esto requiere empaparse a tope con estas nuevas tecnologías y nuevos conocimientos. Porque los "Amos" del mundo ya lo hicieron y saben perfectamente cómo usarlas para sus propios intereses. 
 
-Como dijo Carl Sagan "El Sabio":
+Como dijo Carl Sagan "El Cosmomante":
 
 "Crecemos en una sociedad basada en ciencia y tecnología, en la cual nadie sabe nada de ciencia y tecnología. Esta mezcla inflamable de ignorancia y poder tarde o temprano explotará en nuestras caras. ¿Quién está dirigiendo la ciencia y la tecnología en una democracia donde la gente no sabe nada al respecto?"
 
-Pero qué se yo...
+Pero qué se yo. 
 
 René Martínez Sánchez.
 
