@@ -36,19 +36,21 @@ En el campo de las artes, todos los recursos estéticos han sido edificados por 
 
 La retórica es un cúmulo de estrategias, mayormente estéticas, cuidadosamente perfeccionadas para conmovernos el alma, desarmarnos y convencernos de lo que sea. Sin darnos tantas vueltas, nunca ha faltado alguien que use los recursos retóricos del arte para persuadir. Desde los cuadros del renacimiento, hasta los flamantes discursos de dictadores.
 
-Así nació la bestia que nos asecha. Durante el último siglo, el mundo del marketing y la publicidad se ha valido de las artes y el diseño para persuadir (todas las artes y todos los diseños). Esto incluye persuasión de compra -AJÁ: te tengo. Nos venden gaseosas con música, aerolíneas con danza, telefonía con esculturas, chocolates con tipografía, zapatos con performance, ideologías con literatura, cremas con cromática. En este ecosistema de "compro y luego existo" parece tener sentido absoluto lo que pregunta mi estudiante. Si el objetivo de la ilustración es vender ¿para qué bla bla bla...?(mugre Shinigami).
+Así nació ese *Nazgûl*. Durante el último siglo, el mundo del marketing y la publicidad se ha valido de las artes y el diseño para persuadir (todas las artes y todos los diseños). Esto incluye persuasión de compra -AJÁ: te tengo. Nos venden gaseosas con música, aerolíneas con danza, telefonía con esculturas, chocolates con tipografía, zapatos con performance, ideologías con literatura, cremas con cromática. En este ecosistema de "compro y luego existo" parece tener sentido absoluto lo que pregunta mi estudiante. Si el objetivo de la ilustración es vender ¿para qué bla bla bla...?(mugre Shinigami).
 
-De pronto puedo ver la silueta ambigua de la bestia:
+De pronto puedo ver su silueta, se mueve de un lado a otro, tropezando, deja un rastro de baba en el piso, se acerca al oído de uno, luego de otro, pero puedo leerlo, describirlo: 
 
-- Todas esas aplicaciones estéticas del marketing y la publicidad dedicadas a la persuasión de venta se pueden resolver de un tajo con IA generativaaaaa! 
+- Todas esas aplicaciones estéticas que el marketing y la publicidad necesitan para persuadir a sus públicos y aumentar las ventas se pueden resolver con IA generativaaaaa! 
 
-Por eso el afán de dorarnos la píldora: "la IA genrativa es el futuro". El círculo se cierra, todo tiene sentido. 
+Por eso el afán de dorarnos la píldora: "la IA es el futuro". El círculo se cierra, la serpiente se muerde la cola. Nos venden IA para hacer publicidad y vender más y más rápido y poder seguir comprando IA. Perfecto. 
 
-Para mí la IA generativa está liberando al artista para que este pueda concentrarse de nuevo en explorar sus experiencias internas, eso que le hace ser humano. La IA debe ocupar su lugar no reemplazar a nadie. Hace sentido dejar la ilustración del chaulafán para la promo del fin de semana al MidJourney y al Canva y ocupar el talento, el espíritu en asuntos cada vez más humanos.
+No busco, con mi tono sarcástico, satanizar la venta de un producto artístico cultural, ni mucho menos romantizar la precariedad económica de los artistas. Mi intensión es reflexionar sobre el lugar que debe ocupar el arte y el diseño en la sociedad. Tampoco quiero condenar el uso de inteligencia artificial generativa, ni modelos de difusión, ni grandes modelos de lenguaje: a pesar de que las discusiones sobre las políticas predatorias  económicas, militares y ambientales de las enormes empresas tecno-feudales y sus modelos frontera, sus planes de conquista mundial, sus fábricas de dementores, existen muchas formas de utilizar sistemas alimentados por inteligencia artificial de manera responsable y ética.  
 
-Esta sencilla idea me permite afrontar la crisis existencial de las carreras de artes y diseño con otros argumentos, enfrentar al monstruo con otro conjuro. Cuando un estudiante me vuelva a preguntar le diré levantando las manos:
+Para mí hace sentido dejar la ilustración del pollo asado para la promo del fin de semana en Instagram al MidJourney y al Canva; al fin y al cabo, siempre fueron necesidades gráficas fatuas, efímeras, desechables. Pero si una amiga escribe un cuento fantástico y me pide que ilustre la portada, no usaría IA generativa ni para buscar referentes. Con qué cara voy a meter en mi portafolios una ilustración hecha con un modelo de difusión. 
 
-—Porque aprender a dibujar es aprender a explorar las ideas propias; porque hacer arte nos permite conocernos a nosotros y a nuestros semejantes; porque las experiencias internas nos hacen humanos, y esforzarse por aprender y ser mejores nos ayuda a entender nuestro lugar en el mundo; porque el oficio del diseñador no es vender sino conectar. (en latín)
+Esta sencilla idea me permite afrontar a ese Gollum hediondo de las carreras de artes y diseño con otros argumentos. Cuando un estudiante me haga la misma pregunta le diré levantando las manos:
+
+—Porque aprender a dibujar es aprender a explorar las ideas propias; porque hacer arte nos permite conocernos a nosotros y a nuestros semejantes; porque las experiencias internas nos hacen humanos, y esforzarse por aprender y ser mejores nos ayuda a entender nuestro lugar en el mundo;  porque uno crece en el esfuerzo; porque más temprano que tarde te va a dar vergüenza haberlo hecho;  porque el oficio del diseñador no es vender sino producir sentido. (en latín)
 
 René Martínez Sánchez.
 
