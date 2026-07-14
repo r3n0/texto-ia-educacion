@@ -60,15 +60,19 @@ Esta sencilla idea me permite afrontar al Gollum hediondo que asecha en carreras
 
 —Porque aprender a dibujar es aprender a explorar las ideas propias; porque hacer arte nos permite conocernos a nosotros y a nuestros semejantes; porque las experiencias internas nos hacen humanos, y esforzarse por aprender y ser mejores nos ayuda a entender nuestro lugar en el mundo;  porque uno crece en el esfuerzo; porque más temprano que tarde te va a dar vergüenza haberlo hecho;  porque el oficio del diseñador o artista no es vender sino producir sentido, conectar, explorar la humanidad. [en latín]
 
-Por otro lado, y con esto termino, genuninamente creo que los sistemas de programación con agentes que funcionan sobre modelos de lenguaje especializados han agregado una capa de abstracción casi mágica a la forma en que usamos los computadores hoy en día. Ya hace años (más de 15) que estoy convencido de que todas las personas deberían aprender a programar un computador y ahora el panorama cambió radicalmente. La posibilidad de producir software tiene un carácter emancipador y los arneses para programación con IA aceleran el proceso aun ritmo sin precedentes. Como si los computadores se acercaran cada vez más a su objetivo primigenio: ahora ya no es tan complejo resolver problemas complejos. 
+PUUM!
 
-Hay que doblegar la voluntad de la bestia sombría y usar su poder a nuestro favor. Esto requiere empaparse a tope con estas nuevas tecnologías y nuevos conocimientos. Porque los "Amos" del mundo ya lo hicieron y saben perfectamente cómo usarlas para sus propios intereses. 
+Así te quería ver maldito, retorciéndote en el piso, echando humo.
 
-Como dijo Carl Sagan "El Cosmomante":
+La incertidumbre es natural en estos tiempos. Es un período de adaptación y por eso es importante estar atentos y vigilantes a la luz y las sombras. Genuninamente creo que los sistemas de programación con agentes que funcionan sobre modelos de lenguaje especializados han agregado una capa de abstracción fantástica a la forma en que usamos los computadores hoy en día. Ya hace años (más de 15) que estoy convencido de que todas las personas deberían aprender las artes ocultas de la programación y ahora el panorama cambió radicalmente. La posibilidad de producir software y su carácter emancipador se aceleran a un ritmo sin precedentes. Como si los computadores se acercaran cada vez más a su objetivo primigenio: potenciar nuestras propias capacidades.
+
+Hay que doblegar la voluntad de la bestia sombría y usar su poder a nuestro favor. Esto requiere empaparse a tope con estas nuevas tecnologías y nuevos conocimientos, llenar nuestra bolsita de posiones, porque los "Señores Obscuros" de este mundo ya lo hicieron y saben perfectamente cómo usarlas para sus propios intereses. 
+
+Como dijo alguna vez Carl Sagan "El Cosmomante":
 
 "Crecemos en una sociedad basada en ciencia y tecnología, en la cual nadie sabe nada de ciencia y tecnología. Esta mezcla inflamable de ignorancia y poder tarde o temprano explotará en nuestras caras. ¿Quién está dirigiendo la ciencia y la tecnología en una democracia donde la gente no sabe nada al respecto?"
 
-Pero qué se yo. 
+Pero qué se yo.
 
 René Martínez Sánchez.
 
