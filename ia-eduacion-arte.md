@@ -20,7 +20,7 @@ Silencio en la sala.
 
 ¡Siguiente movimiento René!
 
-—¡Te me vas!— mentira.
+—¡Te me vas!— chendo.
 
 Esta pregunta desgarradora y desconcertante interrumpe mi fabuloso plan A, pero no viene de la nada. La inquietud es legítima, hay un Demogorgon en la sala:
 
@@ -28,7 +28,9 @@ Esta pregunta desgarradora y desconcertante interrumpe mi fabuloso plan A, pero 
 
 Ajá, te tengo.
 
-Hemos visto la vertiginosa proliferación de "productos culturales y artísticos" fabricados con inteligencia artificial generativa. Un tiempo fue curioso, luego fue divertido —cuando aún podíamos identificar la farsa. Pero últimamente ya asusta, ya uno no sabe en qué creer, las paredes se cierran y el engendro apesta. Dicen las malas lenguas que para finales de esta década veremos largometrajes escritos, producidos, actuados, musicalizados, distribuidos y recomendados por inteligencia artificial. Que la boca se me haga chicharrón. Es natural que un estudiante de diseño se sienta amenazado, se le ericen los pelos de la espalda. ¿Dónde quedará el trabajo de los artistas, los actores, los traductores, ilustradores, diseñadores?, si el "arte" se hace solito.
+Hemos visto la vertiginosa proliferación de "productos culturales y artísticos" fabricados con inteligencia artificial generativa. Un tiempo fue curioso, luego fue divertido —cuando aún podíamos identificar la farsa. Pero últimamente ya asusta, uno ya no sabe en qué creer, las paredes se cierran y el engendro apesta. Dicen las malas lenguas que para finales de esta década veremos largometrajes escritos, producidos, actuados, musicalizados, distribuidos y recomendados por inteligencia artificial. Que la boca se me haga chicharrón. Es natural que un estudiante de diseño se sienta amenazado y se le ericen los pelos de la espalda al sentir el aliento baboso en la oreja . 
+
+—¿Dónde quedará el trabajo de los artistas, los actores, los traductores, ilustradores, diseñadores?, si el "arte" se hace solito.
 
 Flashback
 
@@ -56,9 +58,13 @@ Para mí hace sentido dejar la ilustración del pollo asado para la promo del fi
 
 Esta sencilla idea me permite afrontar al Gollum hediondo que asecha en carreras de artes y diseño con otros argumentos. Cuando un estudiante me haga la misma pregunta le diré levantando mi báculo:
 
-—Porque aprender a dibujar es aprender a explorar las ideas propias; porque hacer arte nos permite conocernos a nosotros y a nuestros semejantes; porque las experiencias internas nos hacen humanos, y esforzarse por aprender y ser mejores nos ayuda a entender nuestro lugar en el mundo;  porque uno crece en el esfuerzo; porque más temprano que tarde te va a dar vergüenza haberlo hecho;  porque el oficio del diseñador o artista no es vender sino producir sentido, conectar, explorar la humanidad. (en latín)
+—Porque aprender a dibujar es aprender a explorar las ideas propias; porque hacer arte nos permite conocernos a nosotros y a nuestros semejantes; porque las experiencias internas nos hacen humanos, y esforzarse por aprender y ser mejores nos ayuda a entender nuestro lugar en el mundo;  porque uno crece en el esfuerzo; porque más temprano que tarde te va a dar vergüenza haberlo hecho;  porque el oficio del diseñador o artista no es vender sino producir sentido, conectar, explorar la humanidad. [en latín]
 
-Por otro lado, y con esto termino, genuninamente creo que los sistemas de programación con agentes que funcionan sobre modelos de lenguaje especializados han agregado una capa de abstracción casi mágica a la forma en que usamos los computadores hoy en día. Ya hace años (más de 15) que estoy convencido de que todas las personas deberían aprender a programar un computador y ahora el panorama cambió radicalmente. La posibilidad de producir software —naturalmente requiere comprender el funcionamiento de los sistemas digitales— tiene un carácter emancipador y los arneses para programación con IA aceleran el proceso aun ritmo sin precedentes. Como si los computadores se acercaran cada vez más a su objetivo primigenio, resolver problemas complejos ya es tan complejo. Doblegar la voluntad de la bestia sombría y usar su poder a nuestro favor requiere empaparse a tope con estas tecnologías y nuevos conocimientos. Porque los "Amos" del mundo ya lo hicieron.  Como diría Carl Sagan:
+Por otro lado, y con esto termino, genuninamente creo que los sistemas de programación con agentes que funcionan sobre modelos de lenguaje especializados han agregado una capa de abstracción casi mágica a la forma en que usamos los computadores hoy en día. Ya hace años (más de 15) que estoy convencido de que todas las personas deberían aprender a programar un computador y ahora el panorama cambió radicalmente. La posibilidad de producir software tiene un carácter emancipador y los arneses para programación con IA aceleran el proceso aun ritmo sin precedentes. Como si los computadores se acercaran cada vez más a su objetivo primigenio: ahora ya no es tan complejo resolver problemas complejos. 
+
+Hay que doblegar la voluntad de la bestia sombría y usar su poder a nuestro favor. Esto requiere empaparse a tope con estas nuevas tecnologías y nuevos conocimientos. Porque los "Amos" del mundo ya lo hicieron y saben perfectamente cómo usarlas para sus propios intereses. 
+
+Como dijo Carl Sagan "El Sabio":
 
 "Crecemos en una sociedad basada en ciencia y tecnología, en la cual nadie sabe nada de ciencia y tecnología. Esta mezcla inflamable de ignorancia y poder tarde o temprano explotará en nuestras caras. ¿Quién está dirigiendo la ciencia y la tecnología en una democracia donde la gente no sabe nada al respecto?"
 
