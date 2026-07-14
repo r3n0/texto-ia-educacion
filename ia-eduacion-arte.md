@@ -14,20 +14,24 @@ Para este cometido recurro mucho a las razones por las que a mí me apasiona ilu
 
 ... Silencio en la sala.
 
-¿Qué hago?, ¿Qué le digo?, ¿le pongo cero?, ¿hago una limpia? o peor aún ¿invento mecanismos de control para que no haga el trabajo con IA?, ¿y si no me doy cuenta?, ¿le amenazo?, ¿renuncio? ¡Siguiente movimiento René!
+¿Qué hago?, ¿qué le digo?, ¿le pongo cero?, ¿hago una limpia? o peor aún ¿invento mecanismos de control para que no haga el trabajo con IA?, ¿y si no me doy cuenta?, ¿le amenazo?, ¿renuncio? ¡Siguiente movimiento René!
 
 - ¡Te me vas!- mentira. 
 
 Esta pregunta desgarradora y desconcertante no viene de la nada. La inquietud es legítima. ¿Para que tomarse las molestias si se puede resolver así de fácil?. Al fin y al cabo el cliente ni se da cuenta, y probablemente el publico que la vea tampoco.  Lo que importa es que esa imagen sea linda y -redoble de tambores- se venda. 
 
-Hemos visto la vertiginoza proliferación de "productos artísticos" fabricados con inteligencia artificial generativa. Un timpo fue curioso, luego fue divertirtido -cuando aún podíamos identificar la farza. Pero últimamente ya asusta, ya no sé en qué creer, las paredes se cierran. Dicen las malas lenguas que para finales de esta década veremos largometrajes escritos, producidos, actuados, musicalizados, distribuidos y recomendados por inteligencia artificial. Que la boca se me haga chicharrón.
+Hemos visto la vertiginoza proliferación de "productos artísticos" fabricados con inteligencia artificial generativa. Un timpo fue curioso, luego fue divertirtido -cuando aún podíamos identificar la farza. Pero últimamente ya asusta, ya no sé en qué creer, las paredes se cierran. Dicen las malas lenguas que para finales de esta década veremos largometrajes escritos, producidos, actuados, musicalizados, distribuidos y recomendados por inteligencia artificial. Que la boca se me haga chicharrón. Es natural que un estudiante de diseño se sienta amenazado. ¿Dónde quedará el trabajo de los artistas, los actores, los tradutores, ilustradores, diseñadores?, si la película se hace solita.
 
-Entonces, ¿dónde quedará el trabajo de los artistas, los actores, los tradutores, ilustradores, diseñadores?, si la película se hace solita.
+Para hablar de esto les quiero llevar un ratito al pasado: !A la máquina del tiempo!
 
-Vamos al pasado.
-
-En el campo de las artes, todos los recursos estéticos han sido edificados por miles de años de experimentación sensible. Todo lo que sabemos de cromática, composición y todo lo que mencioné al inicio de este texto, fue explorado, sistematizado y puesto en práctica por artistas durante siglos. El rol social del arte siempre ha orbitado la exploración de las sensaciones, la afección de los sentidos, la conmosión del inconciente individual y colectivo. Pero un producto derivado de la estética hará que este conocimiento sea utilizado para persuadir a cuanto se cruze en su camino: la retória.
+En el campo de las artes, todos los recursos estéticos han sido edificados por miles de años de experimentación sensible. Todo lo que sabemos de cromática, composición y todo lo que mencioné al inicio de este texto, fue explorado, sistematizado y puesto en práctica por artistas durante siglos. El rol social del arte siempre ha orbitado la exploración de las sensaciones, la afección de los sentidos, la conmosión del inconciente individual y colectivo. Pero un producto derivado y paralelo de la estética hará que este conocimiento sea utilizado para persuadir a cuanto se cruze en su camino: la retória.
 
 ¿Persuadir de qué?
 
-La retórica es un cúmulo de estrategias, mayormente estéticas, cuidadosamente perfeccionadas para convmovernos el alma, desarmarnos y convencernos de lo que sea. Sin darnos tantas vueltas, nunca ha faltado alguien que use los recursos retóricos del arte para persuadir = vender.  Para bien o para mal, en el útlimo siglo, el mundo del marketing y la publicidad se ha valido de las artes y el diseño para persuadir. Todas las artes y todos los diseños. Nos venden gaseosas con música, aerolíneas con danza, telefonía con esculturas, chocolates con tipografía. 
+La retórica es un cúmulo de estrategias, mayormente estéticas, cuidadosamente perfeccionadas para convmovernos el alma, desarmarnos y convencernos de lo que sea. Sin darnos tantas vueltas, nunca ha faltado alguien que use los recursos retóricos del arte para persuadir = vender. Desde los cuadros del renacimieto, hasta los flamantes discursos de dictadores. 
+
+(regresamos al presente)
+
+Para bien o para mal, en el útlimo siglo, el mundo del marketing y la publicidad se ha valido de las artes y el diseño para persuadir (todas las artes y todos los diseños). Esto incluye, para bien o para mal (para mal) persuadir de comprar. Nos venden gaseosas con música, aerolíneas con danza, telefonía con esculturas, chocolates con tipografía, zapatos con performace, ideologías con literatura, creamas con cromática, explotación con interfaces. En este ecosistema de "compro y luego existo" parece tener sentido absoluto lo que pregunta mi estudiante. Si el objetivo de la ilustración en vender ¿para qué bla bla bla...?.
+
+Y creo que allí se puede identificar una máxima (que me invento yo este momento): todas esas aplicaciones estéticas del márketin y la publicidad dedicadas meramente a la persuación de venta se puden resolver de un tajo con IA generativa. (punto) 
