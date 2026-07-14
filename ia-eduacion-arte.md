@@ -1,22 +1,22 @@
 Un demonio ideológico ronda las aulas de la Facultad de Artes.
 
-En mis años como docente he visto a estudiantes de primer ciclo ilustrar personajes dignos del concept art de una película de Pixar. Pero aunque sea muy gratificante —spoiler alert— no es algo que hayan aprendido en mi clase.
+En mis años como docente he visto a estudiantes de primer ciclo ilustrar personajes dignos del concept art de una película de Pixar. Pero aunque sea muy gratificante apreciar tales talentos —spoiler alert— no lo hacen no lo aprendieron en mi clase.
 
-Para que una estudiante de diseño pueda producir ilustraciones bellas debe aprender varias técnicas y estrategias como proporciones, linearts, anatomía, perspectiva, composición, semiótica y un largo etcétera. No pueden haber aprendido todo eso en un solo ciclo, ni en dos ni entres, entonces ¿cómo lo logran?. La respuesta es muy obvia pero vale la pena explorarla. En conversaciones, algunos jóvenes mencionaron haber empezado a dibujar a los 8 años, otros a los 12. A breves rasgos, al momento de ingresar en la carrera, algunos jóvenes ilustradores ya traen consigo varios años de experiencia.
+Para que una estudiante de diseño pueda producir ilustraciones bellas debe aprender varias técnicas, hechizos, conjuros mágicos y estrategias como: proporciones, materiales de arte, anatomía, perspectiva, composición, cromática y un largo etcétera. No pueden haber aprendido todo eso en un solo ciclo, ni en dos ni entres, entonces ¿cómo lo logran?. La respuesta es muy obvia pero vale la pena explorarla. En conversaciones, algunos jóvenes mencionaron haberse iniciado en las artes del dibujo a los 8 años, otros a los 12. A breves rasgos, al momento de ingresar en la carrera, algunos jóvenes ilustradores tienen un aura de guerrero, traen consigo varios años de experiencia.
 
 Menciono esto para dejar en claro que es difícil dibujar y a veces se subestima el esfuerzo y la complejidad detrás del quehacer de un ilustrador.
 
-Naturalmente no todos los estudiantes llegan tan entrenados, hay quienes apenas empezaron a dibujar al ingresar a la carrera. Estos comprenden muy pronto el esfuerzo que implica hacerlo "bien", en comparación con los más duchos, o porque simplemente no les gustan sus propios dibujos. Muchos tienen miedo de no lograrlo, o pereza de tomarse la molestia. Entonces entra el docente, para salvar el día. Personalmente me he puesto la tarea de incentivarles y ayudarles a encontrar la motivación correcta que les haga esforzarse y atravesar ese camino difícil. Mi objetivo oculto es que les apasione lo que hacen ¡BUAJAJAJAJA! [Sonidos de truenos]
+Naturalmente no todos los estudiantes llegan tan entrenados, hay quienes apenas empezaron a dibujar al ingresar a la carrera. Estos comprenden muy pronto el esfuerzo que implica hacerlo "bien", en comparación con los más duchos, o porque simplemente no les gustan sus propios dibujos. Muchos tienen miedo de no lograrlo, de no tener el don, o quizá solo pereza de tomarse la molestia. Entonces el docente hace su aparición para salvar el día. Con el tiempo me he impuesto la delicada tarea de incentivar a los estudiantes, ayudarles a encontrar la motivación correcta, contarles de las increíbles aventuras que encontraran en el camino, para que hagan el esfuerzo y se adentren en el  interminable bosque del conocimiento. Mi objetivo oculto es que les apasione lo que hacen ¡BUAJAJAJAJA! [Sonidos de truenos]
 
-Para este cometido recurro mucho a las razones por las que a mí me apasiona ilustrar o pintar. Les muestro cómo he resuelto proyectos, les enseño ejemplos, artistas que admiro, vemos películas, hablamos de proyectos fantásticos. Pero a veces no es suficiente. A veces las experiencias son intransferibles, a veces no logro conectar, porque les caí mal o porque no vieron la serie de la que les hablo. Pero a veces, solo a veces, es algo más, algo intangible, como una presencia maligna que se infiltra en el salón de clases. Como si un enemigo silencioso e invisible se me hubiera adelantado y lleva un tiempo hablándoles a mis muchachos al oído, sembrándoles una idea tóxica en la cabeza, como un virus ideológico, un virus que se alimenta de la incertidumbre, del miedo a lo desconocido, del miedo a perder el tiempo, el miedo a no tener trabajo, ¡el miedo al fracaso!
+Para este cometido recurro ciertos artilugios,  les cuento de mis aventuras y las razones por las que a mí me apasiona ilustrar o pintar. Les muestro cómo he resuelto proyectos, les enseño ejemplos, artistas que admiro, vemos películas, hablamos de historias fantásticas. Pero a veces no es suficiente. A veces las experiencias son intransferibles, a veces no logro conectar, porque les caí mal o porque no vieron la serie de la que les hablo. Pero a veces, solo a veces, es algo más, algo intangible, como una presencia maligna que se infiltra en el salón de clases. Como si un enemigo silencioso y antiguo se me hubiera adelantado y lleva un tiempo hablándoles a mis muchachos al oído, sembrándoles una idea tóxica en la cabeza, como un virus ideológico, una sanguijuela que se alimenta de la incertidumbre, del miedo a lo desconocido,  a perder el tiempo, a no tener trabajo, ¡del miedo al fracaso!
 
-—Profe, ¿para qué me voy a esforzar tanto aprendiendo tantas cosas si con la IA puedo hacer ilustraciones garísimas más rápido y sin esfuerzo?— habla el Shinigami con voz de estudiante.
+—Profe, ¿para qué me voy a esforzar tanto aprendiendo tantas cosas si con la IA puedo hacer ilustraciones garísimas más rápido y sin esfuerzo?— las palabras de Shinigami salen de la boca del estudiante.
 
 ...
 
 Silencio en la sala.
 
-¿Qué hago? ¿Finjo demencia? ¿Le pongo cero? ¿Hago una limpia? O, peor aún ¿invento mecanismos de control para que no haga el trabajo con IA?, ¿y si no me doy cuenta? ¿y si le amenazo? ¿salgo corriendo?
+¿Qué hago? ¿Finjo demencia? ¿Le pongo cero? ¿Hago una limpia? o peor aún ¿invento mecanismos de control para que no haga el trabajo con IA?, ¿y si no me doy cuenta? ¿y si le amenazo? ¿salgo corriendo?
 
 ¡Siguiente movimiento René!
 
@@ -24,17 +24,17 @@ Silencio en la sala.
 
 Esta pregunta desgarradora y desconcertante interrumpe mi fabuloso plan A, pero no viene de la nada. La inquietud es legítima, hay un Demogorgon en la sala:
 
-—¿Para qué tomarse las molestias si se puede resolver así de fácil?. Al fin y al cabo el cliente ni se da cuenta, y probablemente el público que la vea tampoco. Lo que importa es que esa imagen sea linda y —redoble de tambores— se venda.
+—¿Para qué tomarse las molestias si se puede resolver así de fácil?. Al fin y al cabo el cliente ni se da cuenta y probablemente el público que la vea tampoco. Lo que importa es que esa imagen sea linda —redoble de tambores— y se venda.
 
 Ajá, te tengo.
 
-Hemos visto la vertiginosa proliferación de "productos culturales y artísticos" fabricados con inteligencia artificial generativa. Un tiempo fue curioso, luego fue divertido —cuando aún podíamos identificar la farsa. Pero últimamente ya asusta, uno ya no sabe en qué creer, las paredes se cierran y el engendro apesta. Dicen las malas lenguas que para finales de esta década veremos largometrajes escritos, producidos, actuados, musicalizados, distribuidos y recomendados por inteligencia artificial. Que la boca se me haga chicharrón. Es natural que un estudiante de diseño se sienta amenazado y se le ericen los pelos de la espalda al sentir el aliento baboso en la oreja . 
+Hemos visto la vertiginosa proliferación de "productos culturales y artísticos" fabricados con inteligencia artificial generativa. Un tiempo fue curioso, luego fue divertido —cuando aún podíamos identificar la farsa. Pero últimamente ya asusta, uno ya no sabe en qué creer, las paredes se cierran y el engendro apesta. Se comenta en las tabernas que para finales de esta década veremos largometrajes escritos, producidos, actuados, musicalizados, distribuidos y recomendados por inteligencia artificial. Que la boca se me haga chicharrón. Es natural que un estudiante de diseño se sienta amenazado y se le ericen los pelos de la nuca al sentir el aliento baboso en la oreja . 
 
-—¿Dónde quedará el trabajo de los artistas, los actores, los traductores, ilustradores, diseñadores?, si el "arte" se hace solito.
+—¿Dónde quedará el trabajo de los artistas, los actores, los traductores, ilustradores, diseñadores y escritores?, si el "arte" se hace solito.
 
-Flashback
+^^^^^^
 
-Cuentan los antiguos que en el campo de las artes, todos los recursos estéticos han sido edificados, durante miles de años, a punta de experimentación sensible. Todo lo que sabemos de cromática, composición y demás artificios hermosos es el resultado de intensa exploración y sistematización y ha sido puesto en práctica por artistas durante milenios. El rol social del arte siempre ha orbitado la exploración de las sensaciones, la afección de los sentidos, la conmoción del inconsciente individual y colectivo. Pero no vino solo, un producto derivado y paralelo de la estética hará que este conocimiento sea utilizado para persuadir a cuanto se cruce en su camino: la retórica.
+Cuentan los antiguos que en el campo de las artes, todos los recursos estéticos han sido edificados, durante miles de años, a punta de experimentación sensible. Todo lo que sabemos de cromática, composición y demás artificios hermosos es el resultado de intensa exploración y sistematización y ha sido cocinado en las calderas de lo artistas durante milenios. El rol social del arte siempre ha orbitado la exploración de las sensaciones, la afección de los sentidos, la conmoción del inconsciente individual y colectivo. Pero no vino solo, un producto derivado y paralelo de la estética hará que este conocimiento sea utilizado para persuadir a cuanto se cruce en su camino: la retórica.
 
 —¿Persuadir de qué?— dirá el lector intrépido.
 
