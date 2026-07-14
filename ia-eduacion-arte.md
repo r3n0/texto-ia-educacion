@@ -36,8 +36,15 @@ Para bien o para mal, en el útlimo siglo, el mundo del marketing y la publicida
 
 Y creo que allí se puede identificar una máxima (que me invento yo en este momento): todas esas aplicaciones estéticas del márketin y la publicidad dedicadas a la persuación de venta se puden resolver de un tajo con IA generativa. (punto).
 
-Que liberador. Prsonalmente creo que esta premisa me permite ver el problema desde otro enfoque. Para mí la IA generativa está liberando al artista paraq que se pueda concentrar de nuevo en explorar las experiencias internas, eso que nos hace ser humanos, y dejar la ilustración del pollo para vender la promo del fin de semana al MidJourney. 
+Que liberador.
 
-Cuando un estudiante me vuelv a preguntar le diré:
+¿No lo sientes?
 
--Porque aprender a dibujar es aprender a explorar las ideas propias; porque hacer arte nos permite conocernos a nosotros y a nuestros semejantes; porque las experiencias internas nos hacen humanos, y esforzarse por aprender y ser mejores nos ayud a entender nuestro lugar en el mundo.
+ Para mí la IA generativa está liberando al artista para que este pueda concentrar de nuevo en explorar sus experiencias internas, eso que le hace ser humano, y así dejar la ilustración del pollo para vender la promo del fin de semana al MidJourney y al Canva. El objetivo del arte simpre fue sublime, por eso todos deberían hacer arte.
+
+Esta sencilla idea me permite afrontar la crisis existencial con otros argumentos, ver el problema con otro enfoque. Cuando un estudiante me vuelva preguntar le diré:
+
+-Porque aprender a dibujar es aprender a explorar las ideas propias; porque hacer arte nos permite conocernos a nosotros y a nuestros semejantes; porque las experiencias internas nos hacen humanos, y esforzarse por aprender y ser mejores nos ayuda entender nuestro lugar en el mundo; porque el oficio del diseñador no es vender sino solucionar problemas.
+
+René Martínez Sánchez.
+
