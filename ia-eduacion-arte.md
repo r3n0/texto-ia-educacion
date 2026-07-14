@@ -34,4 +34,10 @@ La retórica es un cúmulo de estrategias, mayormente estéticas, cuidadosamente
 
 Para bien o para mal, en el útlimo siglo, el mundo del marketing y la publicidad se ha valido de las artes y el diseño para persuadir (todas las artes y todos los diseños). Esto incluye, para bien o para mal (para mal) persuadir de comprar. Nos venden gaseosas con música, aerolíneas con danza, telefonía con esculturas, chocolates con tipografía, zapatos con performace, ideologías con literatura, creamas con cromática, explotación con interfaces. En este ecosistema de "compro y luego existo" parece tener sentido absoluto lo que pregunta mi estudiante. Si el objetivo de la ilustración en vender ¿para qué bla bla bla...?.
 
-Y creo que allí se puede identificar una máxima (que me invento yo este momento): todas esas aplicaciones estéticas del márketin y la publicidad dedicadas meramente a la persuación de venta se puden resolver de un tajo con IA generativa. (punto) 
+Y creo que allí se puede identificar una máxima (que me invento yo en este momento): todas esas aplicaciones estéticas del márketin y la publicidad dedicadas a la persuación de venta se puden resolver de un tajo con IA generativa. (punto).
+
+Que liberador. Prsonalmente creo que esta premisa me permite ver el problema desde otro enfoque. Para mí la IA generativa está liberando al artista paraq que se pueda concentrar de nuevo en explorar las experiencias internas, eso que nos hace ser humanos, y dejar la ilustración del pollo para vender la promo del fin de semana al MidJourney. 
+
+Cuando un estudiante me vuelv a preguntar le diré:
+
+-Porque aprender a dibujar es aprender a explorar las ideas propias; porque hacer arte nos permite conocernos a nosotros y a nuestros semejantes; porque las experiencias internas nos hacen humanos, y esforzarse por aprender y ser mejores nos ayud a entender nuestro lugar en el mundo.
