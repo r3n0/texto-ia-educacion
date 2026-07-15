@@ -36,15 +36,13 @@ Hemos visto la vertiginosa proliferación de "productos culturales y artísticos
 
 ^^^^^^
 
-Cuentan los antiguos que en el campo de las artes, todos los recursos estéticos han sido edificados, durante miles de años, a punta de experimentación sensible. Todo lo que sabemos de cromática, composición y demás artificios hermosos es el resultado de la intensa exploración y sistematización de las experiencias internas humanas y ha sido cocinado en las calderas de los artistas durante milenios. El rol social del arte siempre ha orbitado la exploración de las sensaciones, la afección de los sentidos, la conmoción del inconsciente individual y colectivo. Pero esta sabiduría no decantó sola, un producto derivado de la estética hará que este conocimiento sea utilizado para persuadir a cuanto se cruce en su camino: la retórica. [truenos]
+Cuentan los antiguos que en el campo de las artes, todos los recursos estéticos han sido edificados, durante miles de años, a punta de experimentación sensible. Todo lo que sabemos de cromática, composición y demás artificios hermosos es el resultado de la intensa exploración y sistematización de las experiencias internas humanas y ha sido cocinado en las calderas de los artistas durante milenios. El rol social del arte siempre ha orbitado la exploración de las sensaciones, la afección de los sentidos, la conmoción del inconsciente individual y colectivo. Pero esta sabiduría no decantó sola, un producto derivado de la estética hará que este conocimiento sea utilizado para persuadir a cuanto se cruce en su camino: la retórica. [sonido de otros truenos]
 
 —¿Persuadir de qué?— dirá el lector intrépido.
 
 La retórica es un cúmulo de estrategias, mayormente estéticas, cuidadosamente perfeccionadas para conmovernos el alma, desarmarnos, romper cualquier conjuro de protección y convencernos de lo que sea. Sin darnos tantas vueltas, nunca ha faltado un hechicero que use los profundos recursos retóricos del arte para persuadir. Desde los cuadros del renacimiento, hasta los discursos de flamantes dictadores.
 
 Así nació ese *Nazgûl* de la incertidumbre: durante el último siglo, el mundo del marketing y la publicidad se ha valido de las artes y el diseño para persuadir a las personas de que compren, lo que sea y a cualquier costo.
-
-¡Ajah! te tengo!
 
 Nos vendes gaseosas con música, aerolíneas con danza, telefonía con esculturas, chocolates con tipografía, zapatos con performance, ideologías con literatura, cremas con cromática. En este ecosistema de "compro y luego existo" tiene sentido absoluto lo que pregunta mi estudiante. 
 
@@ -62,7 +60,7 @@ No busco, con mi tono sarcástico, satanizar la venta de un producto artístico 
 
 Esta sencilla idea me permite afrontar al Gollum deforme que asecha en las aulas de las carreras de artes y diseño con otros argumentos. Cuando un estudiante me haga la misma pregunta le diré levantando mi báculo:
 
-— ¡Porque dibujar es sagrado! ¡Porque hacer arte nos permite conocernos a nosotros y a nuestros semejantes! ¡Porque las experiencias internas nos hacen humanos, y esforzarse por aprender y ser mejores nos ayuda a entender nuestro lugar en el mundo! ¡Porque uno crece en el esfuerzo! ¡Porque más temprano que tarde te va a dar vergüenza haberlo hecho con IA! ¡Porque el oficio del diseñador o artista no es vender sino producir sentido, conectar!. [doto en latín]
+— ¡Porque dibujar es sagrado! ¡Porque hacer arte nos permite conocernos a nosotros y a nuestros semejantes! ¡Porque las experiencias internas nos hacen humanos, y esforzarse por aprender y ser mejores nos ayuda a entender nuestro lugar en el mundo! ¡Porque uno crece en el esfuerzo! ¡Porque más temprano que tarde te va a dar vergüenza haberlo hecho con IA! ¡Porque el oficio del diseñador o artista no es vender sino producir sentido, conectar!. [todo en latín]
 
 ¡PUUM!
 
