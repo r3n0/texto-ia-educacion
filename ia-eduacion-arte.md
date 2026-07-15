@@ -34,17 +34,17 @@ Hemos visto la vertiginosa proliferación de "productos culturales y artísticos
 
 ^^^^^^
 
-Cuentan los antiguos que en el campo de las artes, todos los recursos estéticos han sido edificados, durante miles de años, a punta de experimentación sensible. Todo lo que sabemos de cromática, composición y demás artificios hermosos es el resultado de intensa exploración y sistematización y ha sido cocinado en las calderas de lo artistas durante milenios. El rol social del arte siempre ha orbitado la exploración de las sensaciones, la afección de los sentidos, la conmoción del inconsciente individual y colectivo. Pero no vino solo, un producto derivado y paralelo de la estética hará que este conocimiento sea utilizado para persuadir a cuanto se cruce en su camino: la retórica.
+Cuentan los antiguos que en el campo de las artes, todos los recursos estéticos han sido edificados, durante miles de años, a punta de experimentación sensible. Todo lo que sabemos de cromática, composición y demás artificios hermosos es el resultado de la intensa exploración y sistematización de las experiencias internas humanas y ha sido cocinado en las calderas de los artistas durante milenios. El rol social del arte siempre ha orbitado la exploración de las sensaciones, la afección de los sentidos, la conmoción del inconsciente individual y colectivo. Pero esta sabiduría no decantó sola, un producto derivado de la estética hará que este conocimiento sea utilizado para persuadir a cuanto se cruce en su camino: la retórica. [truenos]
 
 —¿Persuadir de qué?— dirá el lector intrépido.
 
-La retórica es un cúmulo de estrategias, mayormente estéticas, cuidadosamente perfeccionadas para conmovernos el alma, desarmarnos, romper cualquier conjuro de protección y convencernos de lo que sea. Sin darnos tantas vueltas, nunca ha faltado alguien que use los recursos retóricos del arte para persuadir. Desde los cuadros del renacimiento, hasta los discursos de flamantes dictadores.
+La retórica es un cúmulo de estrategias, mayormente estéticas, cuidadosamente perfeccionadas para conmovernos el alma, desarmarnos, romper cualquier conjuro de protección y convencernos de lo que sea. Sin darnos tantas vueltas, nunca ha faltado un hechicero que use los recursos retóricos del arte para persuadir. Desde los cuadros del renacimiento, hasta los discursos de flamantes dictadores.
 
-Así nació ese *Nazgûl*. Durante el último siglo, el mundo del marketing y la publicidad se ha valido de las artes y el diseño para persuadir a las personas para que compren.
+Así nació ese *Nazgûl* de la incertidumbre: durante el último siglo, el mundo del marketing y la publicidad se ha valido de las artes y el diseño para persuadir a las personas de que compren, lo que sea y a cualquier costo.
 
 AJÁ! te tengo!
 
-Nos venden gaseosas con música, aerolíneas con danza, telefonía con esculturas, chocolates con tipografía, zapatos con performance, ideologías con literatura, cremas con cromática. En este ecosistema de "compro y luego existo" parece tener sentido absoluto lo que pregunta mi estudiante. Si el objetivo de la ilustración es vender ¿para qué bla bla bla...? —mugre Shinigami patojo.
+Nos venden gaseosas con música, aerolíneas con danza, telefonía con esculturas, chocolates con tipografía, zapatos con performance, ideologías con literatura, cremas con cromática. En este ecosistema de "compro y luego existo" parece tener sentido absoluto lo que pregunta mi estudiante. Si el objetivo de la ilustración es vender ¿para qué bla bla bla...? —mugre espectro piojoso.
 
 De pronto puedo ver su silueta, se mueve de un lado a otro, tropezando, deja un rastro de baba en el piso, se acerca al oído de uno, luego de otra, pero puedo leerlo, no se me escapa: 
 
@@ -56,23 +56,23 @@ No busco, con mi tono sarcástico, satanizar la venta de un producto artístico 
 
 Para mí hace sentido dejar la ilustración del pollo asado para la promo del fin de semana en Instagram al MidJourney y al Canva; al fin y al cabo, siempre fueron necesidades gráficas fatuas, efímeras, desechables, de consumo rápido. Pero si una amiga escribe un cuento fantástico y me pide que ilustre la portada, no usaría IA generativa ni para buscar referentes. Con qué cara voy a meter en mi portafolios una ilustración hecha con un modelo que no hace más de reencauchutar el talento de miles de ilustradores. 
 
-Esta sencilla idea me permite afrontar al Gollum hediondo que asecha en carreras de artes y diseño con otros argumentos. Cuando un estudiante me haga la misma pregunta le diré levantando mi báculo:
+Esta sencilla idea me permite afrontar al Gollum hediondo que asecha en las carreras de artes y diseño con otros argumentos. Cuando un estudiante me haga la misma pregunta le diré levantando mi báculo:
 
-—Porque aprender a dibujar es aprender a explorar las ideas propias; porque hacer arte nos permite conocernos a nosotros y a nuestros semejantes; porque las experiencias internas nos hacen humanos, y esforzarse por aprender y ser mejores nos ayuda a entender nuestro lugar en el mundo;  porque uno crece en el esfuerzo; porque más temprano que tarde te va a dar vergüenza haberlo hecho;  porque el oficio del diseñador o artista no es vender sino producir sentido, conectar, explorar la humanidad. [en latín]
+—Porque aprender a dibujar es aprender a explorar las ideas propias; porque hacer arte nos permite conocernos a nosotros y a nuestros semejantes; porque las experiencias internas nos hacen humanos, y esforzarse por aprender y ser mejores nos ayuda a entender nuestro lugar en el mundo;  porque uno crece en el esfuerzo; porque más temprano que tarde te va a dar vergüenza haberlo hecho con IA;  porque el oficio del diseñador o artista no es vender sino producir sentido, conectar, explorar la humanidad. [en latín]
 
 PUUM!
 
-Así te quería ver maldito, retorciéndote en el piso, echando humo.
+Así te quería ver, maldito, retorciéndote en el piso, echando humo.
 
-La incertidumbre es natural en estos tiempos. Es un período de adaptación y por eso es importante estar atentos y vigilantes a la luz y las sombras. Genuninamente creo que los sistemas de programación con agentes que funcionan sobre modelos de lenguaje especializados han agregado una capa de abstracción fantástica a la forma en que usamos los computadores hoy en día. Ya hace años (más de 15) que estoy convencido de que todas las personas deberían aprender las artes ocultas de la programación y ahora el panorama cambió radicalmente. La posibilidad de producir software y su carácter emancipador se aceleran a un ritmo sin precedentes. Como si los computadores se acercaran cada vez más a su objetivo primigenio: potenciar nuestras propias capacidades.
+La incertidumbre es natural en estos tiempos. Es un período de adaptación y por eso es importante estar atentos y vigilantes a la luz y las sombras. Genuninamente creo que los sistemas de programación con agentes que funcionan sobre modelos de lenguaje especializados han agregado una capa de abstracción fantástica a la forma en que usamos los computadores hoy en día. Ya hace años (más de 15) que estoy convencido de que todas las personas deberían aprender las artes ocultas de la programación y ahora el panorama cambió radicalmente. La posibilidad de producir software y su carácter emancipador se aceleran a un ritmo sin precedentes. Como si los computadores se acercaran cada vez más a su objetivo primigenio: potenciar nuestras propias capacidades y hacer magia.
 
-Hay que doblegar la voluntad de la bestia sombría y usar su poder a nuestro favor. Esto requiere empaparse a tope con estas nuevas tecnologías y nuevos conocimientos, llenar nuestra bolsita de posiones, porque los "Señores Obscuros" de este mundo ya lo hicieron y saben perfectamente cómo usarlas para sus propios intereses. 
+Hay que doblegar la voluntad de la bestia sombría y usar su poder a nuestro favor. Esto requiere empaparse a tope de estas nuevas tecnologías y nuevos conocimientos, llenar nuestra bolsita de posiones, porque los "Señores Obscuros" de este mundo ya lo hicieron y saben perfectamente cómo usarlas para sus propios intereses. 
 
 Como dijo alguna vez Carl Sagan "El Cosmomante":
 
 "Crecemos en una sociedad basada en ciencia y tecnología, en la cual nadie sabe nada de ciencia y tecnología. Esta mezcla inflamable de ignorancia y poder tarde o temprano explotará en nuestras caras. ¿Quién está dirigiendo la ciencia y la tecnología en una democracia donde la gente no sabe nada al respecto?"
 
-Pero qué se yo.
+Pero yo qué se.
 
 René Martínez Sánchez.
 
