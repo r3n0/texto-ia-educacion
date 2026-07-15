@@ -70,7 +70,7 @@ Hay que doblegar la voluntad de la bestia sombría y usar su poder a nuestro fav
 
 Como dijo alguna vez Carl Sagan "El Cosmomante":
 
-"Crecemos en una sociedad basada en ciencia y tecnología, en la cual nadie sabe nada de ciencia y tecnología. Esta mezcla inflamable de ignorancia y poder tarde o temprano explotará en nuestras caras. ¿Quién está dirigiendo la ciencia y la tecnología en una democracia donde la gente no sabe nada al respecto?"
+"Crecemos en una sociedad basada en ciencia y tecnología, en la cual nadie sabe nada de ciencia y tecnología. Esta mezcla inflamable de ignorancia y poder tarde o temprano explotará en nuestras caras. ¿Quién está dirigiendo la ciencia y la tecnología en una democracia donde la gente no sabe nada al respecto?" [en élfico antiguo]
 
 Pero yo qué se.
 
